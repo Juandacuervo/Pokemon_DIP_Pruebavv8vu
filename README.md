@@ -1,1 +1,0 @@
-# Pokemon_DIP_Pruebavv8vu
